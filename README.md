@@ -1,1 +1,1 @@
-# omgpils.github.io
+# omgpils.com
